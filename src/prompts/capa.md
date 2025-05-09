@@ -1,0 +1,1 @@
+High-quality abstract podcast cover art. No text. Modern, professional, light tone. Vibrant green #7ed956 is dominant, use for main elements/background accents. Symbolize DevOps, cloud, SRE synergy: subtle interconnected geometrics & soft cloud-like forms. Balance #7ed956 with neutrals/analogous greens for depth. Innovative, techy, optimistic feel.
