@@ -1,0 +1,1 @@
+Gere um prompt em inglês de até 500 caracteres para a criação de imagem de alta qualidade para a capa de um podcast de nome "NãoDev: explorando o lado Ops dessa aliança" que vai tratar sobre temas da área de devops, nuvem, sre. Dê uma descrição específica e detalhada da imagem, que deve ter um tom leve ao mesmo tempo que profissional e deve dar mais ênfase a cor #7ed956.
